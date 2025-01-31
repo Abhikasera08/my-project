@@ -1,1 +1,1 @@
-cynthia ugwu project
+Product Designer project
